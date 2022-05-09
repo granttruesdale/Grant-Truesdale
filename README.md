@@ -1,4 +1,5 @@
 # Grant Truesdale
 
 CNH Industrial
-Marketing Specialist, Precision Land Management
+Marketing Specialist
+University of Iowa - Tippie College of Business
