@@ -2,7 +2,7 @@
 
 CNH Industrial
 
-Marketing Specialist
+Marketing Specialist - Precision Land Management
 
 University of Iowa - Tippie College of Business
 
